@@ -7,6 +7,6 @@
 hallo semua disini saya akan berbagi seputar cyber dan administrasi jaringan
 
  jangan lupa menekan :star: jika kamu suka dengan informasi ini.
-![](https://github.com/Cpixiee/Cpixiee/blob/main/Ungu%20Futuristic%20Cyber%20Monday%20Flyer.png)
+![](https://github.com/Cpixiee/Cpixiee/blob/main/681016.jpg)
 ### Wanna PLay Dino For ME??!! ###
 ![](https://github.com/saadeghi/saadeghi/blob/master/dino.gif)
