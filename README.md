@@ -10,3 +10,8 @@ hallo semua disini saya akan berbagi seputar cyber dan administrasi jaringan
 ![](https://github.com/Cpixiee/Cpixiee/blob/main/681016.jpg)
 ### Wanna PLay Dino For ME??!! ###
 ![](https://github.com/saadeghi/saadeghi/blob/master/dino.gif)
+![Wit Urrohman stats](https://github-readme-stats.vercel.app/api?username=Cpixiee&show_icons=true&theme=transparent)
+
+
+
+[![Harlok's WakaTime stats](https://github-readme-stats.vercel.app/api/wakatime?username=ffflabs)](https://github.com/anuraghazra/github-readme-stats)
